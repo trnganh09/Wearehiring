@@ -12,3 +12,4 @@ Good English is required
 Location: Hybrid/HCM
 
 For further details, please send me messages via 𝐬𝐤𝐲𝐩𝐞: 𝐭𝐫𝐧𝐠𝐚𝐧𝐡𝟎𝟗
+![Uploading Teal Modern Blog LinkedIn Post.jpg…]()
